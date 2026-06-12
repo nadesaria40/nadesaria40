@@ -6,12 +6,28 @@ Well, I don't much to show for yet, but I'll get there eventually..
 aspiring to be a bunch of things, i guess..
 I'm a could've should've type of person......
 
-#Likes and Fandoms
+### Likes and Fandoms
+Geometry Dash
 
+Arknights
 
+Girls Frontline
 
+Hardstyle
 
+Portland Trail Blazers
+
+Scuderia Ferrari
+
+Victoria 3
+
+Touhou
+
+Battle Cats
+> my wives suwako and goldenglow
 ---
+
+## Alleged "Skills"
 
 
 
