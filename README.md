@@ -1,4 +1,19 @@
-## Hi there 👋
+## Hi, I'm Moriya!!!!!!! :3
+> well actually, my name's Jilhelm, but friends call me Moriya!
+---
+## About me.....
+Well, I don't much to show for yet, but I'll get there eventually..
+aspiring to be a bunch of things, i guess..
+I'm a could've should've type of person......
+
+#Likes and Fandoms
+
+
+
+
+---
+
+
 
 <!--
 **nadesaria40/nadesaria40** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
